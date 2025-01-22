@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on working from home
 - 📫 How to reach me: +234 8030505262
 - 😄 Pronouns: she
-- ⚡ Fun fact: 
+- ⚡ Fun fact: v
 
 <!---
 JemiCy123/JemiCy123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
